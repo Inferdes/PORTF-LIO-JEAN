@@ -17,7 +17,7 @@ ARQUITETURA E URBANISMO
 
 Conecte-se comigo através das minhas redes sociais! 📱
 
-- **Instagram**: [@seuusuario](https://www.instagram.com/seuusuario) 📸
+- **Instagram**: [@seuusuario](https://www.instagram.com/jean_carlos_cantor) 📸
 - **Facebook**: [Seu Nome](https://www.facebook.com/seunome) 📘
 - **LinkedIn**: [Seu Nome](https://www.linkedin.com/in/seunome) 💼
 - **WhatsApp**: [Clique aqui para me enviar uma mensagem](https://wa.me/seunumerodetelefone) 💬
